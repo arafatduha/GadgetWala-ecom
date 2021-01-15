@@ -1,1 +1,0 @@
-# GadgetWala-ecom
